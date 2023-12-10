@@ -2,7 +2,11 @@
 
 Link of the video is given below 
 
-https://clipchamp.com/watch/n0NZ4D1B5g6
+https://clipchamp.com/watch/n0NZ4D1B5g6 
+
+or
+
+https://drive.google.com/file/d/1D8r2exrfb8j-PbxfA-3kXK4I5XPa8zsI/view?usp=drive_link 
 
 ## Explanation
 
